@@ -46,10 +46,60 @@ It is no wonder, then, that as a church and as a people we have deep and abiding
 
 ### Engaged in a good cause
 
+As a church, we are please to commend and enourage every civic and cultural project or undertaking that is edifying and wholesome and that is for the blessing and betterment of mankind.
+
+One of our Aticles of Faith declares: "We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men... If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things." (Article 13.)
+
+And one of the revelations the Lord has given counsels that "men should be anxiously engaged in a good cause, and do many things of their own free will, and bring to pass much righteousness." (D&C 58:27)
+
 ### Social trends
+
+We look with firm disfavor upon some of the social and cultural trends that have existed and do exist in our society, and firmly believe that all decisions on moral issues should be in harmony with the standards found in the Holy Scriptures, beginning with the Old Testament and including the other volumes and revealed writ that God has given in succeeding dispensations.
+
+One of these divine standards states: "And that which doth not edify is not of God, and is darkness." (D&C 50:23) As a people we seek for ourselves and for all mankind only those things which are edifying, enlightening, uplifting, and ennobling.
 
 ### Spirit of disruption
 
+We believe it is essential that our young people gain sufficent education to care for themselves in this highly specialized age, and also to serve their fellowmen, and we have in the past and shall continue in the future to support education at all levels.
+
+We have little sympathy, however, with the spirit of disruption and dissidence that is sometimes found on the campuses of the land. We urge our youth to avoid these displays of intemperate conduct and rather to be found on the side of law and order and circumspect action.
+
+It is our hope and prayer that in all nations men may live in peace, respecting each other's beliefs and forms of worship, and that the spirit of unity and brotherhood may abound on every side.
+
+We know there are many people who seek to live upright lives and who desire to maintain substantially the same standards to which we adhere. We welcome their encouragement and hope they will feel to accept the hand of Christian fellowship from us, as all of us seek those great goals so basic to true worship and unity.
+
 ### Welfare of youth
 
+We have great concern for the spiritual and moral welfare of all youth everwhere. Morality, chastity, virture, freedom from sin -- these are and must be basic to our way of life, if we are to realize its full purpose.
+
+We plead with fathers and mothers to teach personal purity by precept and example and to counsel with their children in all such things.
+
+We ask parents to set an example of righteousness in their own lives and to gather their children around them and teach them the gospel, in their home evenings and at other times.
+
+We have confidence in the young and rising generation in the Church and plead with them not to follow that fashions and customs of the world, not to partake of a spirit of rebellion, not to forsake the paths of truth and virture. We believe in their fundamental goodness and expect them to become pillars of righteousness and to carry on the work of the Church with increasing faith and effectiveness.
+
+Our young people are among the most blessed and favored of our Father's children. They are the nobility of heaven, a choice and chosen genereation who have a divine destiny. Their spirits have been reserved to come forth in this day when the gospel is on earth, and when the Lord needs valiant servants to carry on his great latter-day work.
+
+May the Lord bless you, the youth of Zion, and keep you true to every covenant and obligation, cause you to walk in paths of light and truth, and preserve you for the great labors ahead.
+
+There has never been a time, in this age of the earth's history, at least, when the blessings of a gracious and loving Father were as much needed by all men as they are now.
+
 ### Prayer for divine blessings
+
+And so now I pray that God our Heavenly Father will open the windows of heaven and pour out upon his children in all the earth those great and eternal blessings which will better their lot temporally and spiritually.
+
+O that men might forsake the way of the world and turn to that God who made them!
+
+O that they might open their hearts and receive the words of truth and light found in the gospel of this Son!
+
+O that there might be peace on earth, brotherhood among nations, and love in the hearts of men!
+
+I pray that God our Eternal Father will look down in love and mercy upon his people everywhere, and upon all those who have chosen him as their God and who seek to serve him in the name of his Son.
+
+I pray that parents everywhere may be a light unto their children; that they may guide them in paths of truth and righteousness; and that children may respond to parental teaching and be preserved from the evils of the world.
+
+I pray for the weak and the weary, for those who are burdened with cares and sorrows, for those who need comfort and assurance amid the storms of life.
+
+May the Lord grant unto them peace according to the promise of this Son, who said to the saints of olden times: "Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid." (John 14:27)
+
+May the Lord grant unto us and to all men the fullness of those blessings which we are able to receive in this life and then accept us into his kingdom in the eternities that lie ahead -- all of which I pray in humiliy and in thanksgiving and in the name of the Lord Jesus Christ. Amen.
